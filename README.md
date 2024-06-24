@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analyzing.
 - 🌱 I’m currently learning Data Analyzing
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me t.me/abdo544444
+- 📫 How to reach me https://t.me/abdo544445
 - 😄 Pronouns: Abdou
 
 
