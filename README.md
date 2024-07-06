@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Abdo Al-atrash
 - 👀 I’m interested in data analyzing.
 - 🌱 I’m currently learning Data Analyzing
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on Data Analyzing projects. 
 - 📫 How to reach me https://t.me/abdo544445
 - 😄 Pronouns: Abdou
 
